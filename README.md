@@ -28,9 +28,3 @@
 	</a>
   
 </p>
-
-
-https://discord.gg/cKKs3kv
-
-
-
